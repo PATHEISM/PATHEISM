@@ -1,4 +1,6 @@
 # ଘ(੭*ˊᵕˋ)੭* ̀ˋ ![nightmares](https://komarev.com/ghpvc/?username=yourgithubname&label=nightmares&color=3c1361)
-<a href="https://ibb.co/NRgjVzM"><img src="https://i.ibb.co/jt9M6FS/DSDDANDY.png" alt="DSDDANDY" border="0" /></a>
-![typing banner](https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=22&color=CBA4FF&width=600&lines=Hi+there%2C+welcome+to+my+shop!;Thanks+for+the+tapes!;Ahem%2C+where+are+my+manners?;We're+friends+here%2C+right?;Spare+a+flower+some+tapes%2C+will+ya?)
+
+
+![typing banner](https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=22&color=9E1E39&width=600&lines=I+cannot+help+but+be+frightened+of+the+morning+sun.;That+evil+smile+%E2%86%90+Me,+cutting+it+of.;I+gaze+upon+a+procession+of+dead+people.;I+watch+the+march+of+dead+ants.)
+
 
